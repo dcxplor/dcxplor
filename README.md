@@ -7,7 +7,7 @@ Email Me 👉 ✉️ raashidahmeddc@gmail.com For Collaboration/Project or Anyth
 🔭 I’m currently working on: data analysis
 🌱 I’m currently learning: data science
 👯 I’m looking to collaborate on: projects with huge potential
-🤔 I’m looking for help with: none
+🤔 I’m looking forward to build some good networks..
 💬 Ask me about: Collaboration, Tech Support, business related
 📫 How to reach me: raashidahmeddc@gmail.com
 😄 Pronouns: DC
